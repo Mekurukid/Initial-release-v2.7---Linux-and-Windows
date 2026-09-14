@@ -1,4 +1,4 @@
-[LIESMICH-WINDOWS.txt](https://github.com/user-attachments/files/32184809/LIESMICH-WINDOWS.txt)
+(https://github.com/user-attachments/files/32184809/LIESMICH-WINDOWS.txt)
 OOT SAMMEL-CHECKLISTEN 2.7 - WINDOWS EDITION
 ================================================
 
